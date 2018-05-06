@@ -1,0 +1,1 @@
+I am Hope Uwa, I am a Systems Engineer. I am fascinated about solving problem with technology. I aspire to become a world class developer. 
